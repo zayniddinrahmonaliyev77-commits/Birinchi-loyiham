@@ -1,1 +1,1 @@
-# Birinchi-loyiham
+Birinchi loyiham
